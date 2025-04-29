@@ -1,5 +1,5 @@
 # Chelsea Ayitey-Adjin
-Contact Info: [fill in]
+Contact Info: cayitey-adjin@loyola.edu
 ### About Me 
 [Fill in Madlibs here]
 
