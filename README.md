@@ -4,7 +4,8 @@ Contact Info: [fill in]
 [Fill in Madlibs here]
 
 ### Education 
-[Fill in Education here]
+Loyola University Maryland (Current)
+Chesapeake Math and IT Academy North (August 2019- May 2023)
 ***
 ### Projects
 
